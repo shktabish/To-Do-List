@@ -1,4 +1,3 @@
-Sure, here's a shorter version:
 
 ---
 
